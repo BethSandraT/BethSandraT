@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BethSandraT
+- 👀 I’m interested in constructed languages
+- 🌱 I’m currently learning financial mathematics in order to pass the Exam FM 
+- 💞️ I’m looking to collaborate on actuarial exam studying
+- 📫 How to reach me: bethsandratyler@gmail.com
